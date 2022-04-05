@@ -1,0 +1,1 @@
+# crypto-frenchies-nft-collection
